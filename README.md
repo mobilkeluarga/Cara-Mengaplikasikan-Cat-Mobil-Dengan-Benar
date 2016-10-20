@@ -1,4 +1,4 @@
-<img src=https://i.ytimg.com/vi/GLCLb8Kcff8/hqdefault.jpg">
+<img src="https://i.ytimg.com/vi/GLCLb8Kcff8/hqdefault.jpg">
 <p>Saat ada bagian dari bodi mobil Anda yang tergores atau lecet,  atau mungkin sudah merasa bosan dengan warna cat mobil Anda, menjadi alasah untuk membawanya ke bengkel-bengkel cat mobil untuk dicat ulang. Memang biaya untuk cat ulang mobil bisa jadi lebih mahal, karena bahan dan alat serta kualitas pekerjaan akan mempengaruhi harga yang dibandrol untuk jasa pengecatan mobil.</p>
 <p>Namun Anda juga bisa mengerjakannya sendiri, terutama bila goresan terbilang kecil sehingga Anda pun bisa menyiasatinya sendiri. Hanya saja agar hasilnya tidak mengecewakan, lakukan dengan sungguh-sungguh dan pastikan sudah mencari informasi mengenai cara mengecat mobil yang termudah. </p>
 <p>Dari sebuah <a href=http://daihatsu.co.id/tips-sahabat/artikel/detail/40/cara-mengecat-mobil">video tutorial mengecat mobil termudah</a> yang bisa didapatkan di internet, dapat diuraikan langkah-langkahnya sebagai berikut :</p>
