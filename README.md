@@ -1,0 +1,12 @@
+<img src=https://i.ytimg.com/vi/GLCLb8Kcff8/hqdefault.jpg">
+<p>Saat ada bagian dari bodi mobil Anda yang tergores atau lecet,  atau mungkin sudah merasa bosan dengan warna cat mobil Anda, menjadi alasah untuk membawanya ke bengkel-bengkel cat mobil untuk dicat ulang. Memang biaya untuk cat ulang mobil bisa jadi lebih mahal, karena bahan dan alat serta kualitas pekerjaan akan mempengaruhi harga yang dibandrol untuk jasa pengecatan mobil.</p>
+<p>Namun Anda juga bisa mengerjakannya sendiri, terutama bila goresan terbilang kecil sehingga Anda pun bisa menyiasatinya sendiri. Hanya saja agar hasilnya tidak mengecewakan, lakukan dengan sungguh-sungguh dan pastikan sudah mencari informasi mengenai cara mengecat mobil yang termudah. </p>
+<p>Dari sebuah <a href=http://daihatsu.co.id/tips-sahabat/artikel/detail/40/cara-mengecat-mobil">video tutorial mengecat mobil termudah</a> yang bisa didapatkan di internet, dapat diuraikan langkah-langkahnya sebagai berikut :</p>
+<p>1. Haluskan terlebih dahulu bagian yang akan dicat dengan amplas halus (dianjurkan amplas ukuran 800 jenis waterproof, lalu dihaluskan lagi dengan ampelas ukuran 1000).</p>
+<p>2. Setelah permukaan bodi mobil selesai diamplas, cuci bagian yang akan dicat dengan air bersih, lalu keringkan dengan kain dan panaskan di bawah terik matahari hingga benar-benar kering.</p>
+<p>3. Cat permukaan bodi yang dikehendaki dengan Epoxy. Setelah selesai, jemur bagian yang sudah dicat tadi. Begitu kering, gosok lagi dengan amplas berukuran 1200 cukup sampai rata permukaannya saja.</p>
+<p>4. Kemudian cuci bagian tersebut dengan air bersih lalu jemur lagi hingga kering dan bersihkan dengan kain yang lembut, contohnya bahan kaos.</p>
+<p>5. Masuk di tahap pengecatan, gunakan cat dasar sesuai keinginan, bisa putih atau abu-abu. Lakukan pengecatan di tempat yang terbuka agar terkena sinar matahari langsung namun  hindarkan dari debu. Setelah dicat, jemur bagian tersebut dan setelah benar-benar kering, amplas lagi untuk memperoleh hasil maksimal. Gunakan amplas berukuran lebih dari 1200 dengan proses pengamplasan cukup tipis-tipis saja.</p>
+<p>6. Kemudian di tahap pewarnaan, pilih warna sesuai keinginan dengan campuran untuk cat lebih diencerkan. Dalam proses pengecatan, cukup sekali dalam menarik spoit cat, jangan berulang-ulang agar terlihat rata. Selanjutnya jemur hingga benar-benar kering.</p>
+<p>7. Setelah kering, lalu memasuki proses pernis sehingga hasilnya mobil nampak mengkilap walau belum dicuci.</p>
+<p>Itulah langkah-langkah mudah untuk mengecat mobil sendiri. Cukup jelas, bukan?</p>
